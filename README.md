@@ -1,1 +1,0 @@
-# statisticsandtrendsassignment2
